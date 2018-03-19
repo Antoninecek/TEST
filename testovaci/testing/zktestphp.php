@@ -1,1 +1,1 @@
-cosi    kdesi procsi
+dfcosi    kdesi procsi
